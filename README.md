@@ -1,2 +1,2 @@
 # JuZon
-Le meilleur site de streaming gratuit mais légal.
+Le meilleur site de streaming gratuit légal.
